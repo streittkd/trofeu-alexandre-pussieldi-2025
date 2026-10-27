@@ -1,1 +1,0 @@
-# trofeu-alexandre-pussieldi-2025
